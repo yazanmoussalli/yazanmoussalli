@@ -72,4 +72,6 @@ Committed to delivering high-quality solutions.
 
 <h2>Contact</h2>
 
-- GitHub: https://github.com/YOUR_USERNAME
+- Gmail : ym84130@gmail.com
+- Instagram : @yazaannx
+- Whatsapp : +971554244748
